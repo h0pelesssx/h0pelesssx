@@ -7,5 +7,5 @@
 <img width="898" height="400" alt="output-onlinegiftools (1)" src="https://github.com/user-attachments/assets/94d04157-c67e-46b1-8b8b-cc8cc8e3c8eb" />
 
 
-𝐂𝐙/𝐄𝐍𝐆  ♱  𝐂𝐡𝐞𝐜𝐤 𝐢𝐧𝐟𝐨 𝐩𝐚𝐠𝐞𝐬 𝐁𝐘𝐈
+𝐂𝐙/𝐄𝐍𝐆  ♱  𝐂𝐡𝐞𝐜𝐤 𝐢𝐧𝐟𝐨 𝐩𝐚𝐠𝐞𝐬 𝐭𝐨 𝐠𝐞𝐭 𝐭𝐨 𝐤𝐧𝐨𝐰 𝐦𝐞
 
