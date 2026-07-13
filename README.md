@@ -1,7 +1,11 @@
-under construction
-<img width="800" height="335" alt="f5fa3b1aafc9d7b7ec4057da563f6107" src="https://github.com/user-attachments/assets/ce3583bf-97a6-4b27-821d-7ce4989bc846" />
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=hopelesssx&color=gray&style=flat-square&label=Tears+Shed)
+
+♱ "𝐄𝐯𝐞𝐫𝐲 𝐡𝐞𝐫𝐨 𝐡𝐚𝐬 𝐚 𝐰𝐞𝐚𝐤𝐧𝐞𝐬𝐬"
+
+<img width="898" height="400" alt="output-onlinegiftools (1)" src="https://github.com/user-attachments/assets/94d04157-c67e-46b1-8b8b-cc8cc8e3c8eb" />
 
 
-
-
+𝐂𝐙/𝐄𝐍𝐆  ♱  𝐂𝐡𝐞𝐜𝐤 𝐢𝐧𝐟𝐨 𝐩𝐚𝐠𝐞𝐬 𝐁𝐘𝐈
 
